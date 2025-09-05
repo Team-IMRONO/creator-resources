@@ -26,4 +26,4 @@
 
 - Instagram: [@rodieeno](https://www.instagram.com/rodieeno)
 
-- Official Discord: [Join Now](https://discord.gg/imrono)!
+- Official Discord: [discord.gg/imrono](https://discord.gg/imrono)!
