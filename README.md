@@ -5,7 +5,7 @@
 
 <h3>IMTIYANO</h3>
 
-- Business Email: [Click Here](mailto:imtiyano0708@gmail.com)!  
+- Business Email: [imtiyano0708@gmail.com](mailto:imtiyano0708@gmail.com)!  
 
 - Youtube: [IMTIYANO](https://www.youtube.com/@imtiyano)
 
@@ -13,11 +13,11 @@
 
 - Instagram: [@imtiyano](https://www.instagram.com/imtiyano)
 
-- Official Discord: [Join Now](https://discord.gg/imrono)!
+- Official Discord: [discord.gg/imrono](https://discord.gg/imrono)!
 
 <h3>RODIEENO</h3>
 
-- Business Email: [Click Here](mailto:kumaronak06@gmail.com)!  
+- Business Email: [kumaronak06@gmail.com](mailto:kumaronak06@gmail.com)!  
 
 - Youtube: 
 [RODIEENO](https://www.youtube.com/@rodieeno)
