@@ -13,7 +13,7 @@
 
 - Instagram: [@imtiyano](https://www.instagram.com/imtiyano)
 
-- Official Discord: [discord.gg/imrono](https://discord.gg/imrono)!
+- Official Discord: [discord.gg/imrono](https://discord.gg/MAYpcFtAgV)!
 
 <h3>RODIEENO</h3>
 
@@ -26,4 +26,4 @@
 
 - Instagram: [@rodieeno](https://www.instagram.com/rodieeno)
 
-- Official Discord: [discord.gg/imrono](https://discord.gg/imrono)!
+- Official Discord: [discord.gg/imrono](https://discord.gg/MAYpcFtAgV)!
